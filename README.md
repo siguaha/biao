@@ -1,6 +1,6 @@
 # 牛c网导航
 
-### <a href="https://github.com/xinfue/dunp/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
+<hr/> <a href="https://github.com/siguaha/najh/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 牛c网导航
 “大力果：吃了之后可以催生出一种先天体质，可以使人变得力大无穷，力拔山河！”
